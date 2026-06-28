@@ -1,4 +1,4 @@
-# 
+# Instantâneo Kaspersky Total Security scripts para Mac OS | Automático Kaspersky Total Security scripts para PC Windows. Com monitoramento em tempo real e preenchimento automático — otimizado para máximo desempenho em cada plataforma.
 
 
 
